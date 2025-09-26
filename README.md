@@ -1,1 +1,1 @@
-## Skillyug Exam Platform Landing Page
+## Orchid Exam Platform Landing Page
